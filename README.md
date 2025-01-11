@@ -15,6 +15,5 @@
 - **یوتیوب**: [youtube.com/@alirezabytes](https://youtube.com/@alirezabytes)
 - **تلگرام**: [t.me/alirezabytes](https://t.me/alirezabytes)
 - **ایکس**: [x.com/alirezabytes](https://x.com/alirezabytes)
-- **لینکدین**: [linkedin.com/in/alirezabytes](https://linkedin.com/in/alirezabytes)
 
 همراه من باش تا هر روز حرفه‌ای‌تر بشیم! 🔥
