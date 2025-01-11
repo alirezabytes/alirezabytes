@@ -1,4 +1,4 @@
-## Alireza Marzban | AlirezaBytes
+## alireza marzban | alirezabytes
 **برنامه‌نویس، مدرس کدنویسی & Ethical Hacker** 🚀  
 عاشق تکنولوژی، ترفندهای جذاب و پروژه‌های کاربردی ⚡️
 
